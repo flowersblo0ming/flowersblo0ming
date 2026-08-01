@@ -9,5 +9,4 @@
 - 🦖 I like dinosaurs
 - 🤭 I use emojis too often
 ---
-- my discord is https://discord.com/1314526684950564887
 - my strawpage is https://krisiiiiii.straw.page
