@@ -6,6 +6,8 @@
 - 📫 How to reach me: discord :o
 - 😄 Pronouns: she / they
 - ⚡ Fun fact: i memorized the wingspan of the quetzalcoatlus northropi
+- 🦖 I like dinosaurs
+- 🤭 I use emojis too often
 ---
 - my discord is https://discord.com/1314526684950564887
 - my strawpage is https://krisiiiiii.straw.page
